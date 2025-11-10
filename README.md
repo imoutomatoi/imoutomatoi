@@ -1,7 +1,7 @@
 ## ![](https://64.media.tumblr.com/52eff6fe2f0e8790cd91ed9770b2e74c/2a5322568a5de8bb-a0/s75x75_c1/e0cde9162f7f192b5d21d332cbe18edc2816aa80.gif) $\color{#ff6889}\large{\textsf{16+ beyond this point, okay?}}$ ![](https://64.media.tumblr.com/e0573f51d8145eccfe80550944204aae/2a5322568a5de8bb-e0/s75x75_c1/b8c72451cc917d295cb564a031199433324f7337.gif)
 $\color{#ee3f86}\large{\textsf{i'm ruby!}}$ $\color{#ff6889}\large{\textsf{resident}}$ $\color{#ff7d76}\large{\textsf{permatween}}$ $\color{#ff8f60}\large{\textsf{weeb girl}}$
 
-Join the TownShip discord server [here!](https://discord.gg/N5QBP9uD3c)
+Join the RWBY anti-anti discord server [here!]([https://discord.gg/N5QBP9uD3c](https://discord.gg/HXAU7xDUTV))
 
 you're welcome to whisper me, as i'm often offtab and wont see regular msgs right away. im pretty friendly i like to think, so if you need anything, or just to say hello, i'll surely reply!
 
