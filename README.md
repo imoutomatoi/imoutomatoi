@@ -1,5 +1,6 @@
 you're welcome to whisper me, as i'm often offtab and wont see regular msgs right away!! im actually really sweet and hard to agitate. 
 you **may** cuddle behind me, and chat up to me, but i do request you ask before sending me a friend request. i may not accept those until i feel like we're regularly friendly!!
+
 things i #enjoy: rwby, murder drones, kill la kill, paswg, mlp, arcane, atla, poppy's playtime, gravity falls, south park, spy x family (and a lot more)
 
 ## $\color{#ff6889}\large{\textsf{boundries / byi stuff}}$
