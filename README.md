@@ -5,6 +5,7 @@ things i #enjoy: rwby, murder drones, kill la kill, paswg, mlp, arcane, atla, po
 
 ## $\color{#ff6889}\large{\textsf{boundries / byi stuff}}$
 - very obvious siscon and himejoshi purist
+- regiment members dni
 - i hide forever, so if youre a jerk you'll never see me again
 - if your friends or inner circle would hate me for ships and genre preferences do not bother becoming friends with me
 - 17+ 2 be-friend. i server hop between 18+ n safe.
